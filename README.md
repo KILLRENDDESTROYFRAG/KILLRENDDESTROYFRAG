@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=KILLRENDDESTROYFRAG&color=000000&style=for-the-badge&label=GEEKS+FRAGGED&base=197374&abbreviated=true)
+
 <p align="left">
   <img src="https://files.catbox.moe/6fvswx.png" width="50%">
   
